@@ -4,8 +4,6 @@
   'Para contato aqui em baixo estará um e-mail para comunicação' **felipe.andre.schmidt@escola.pr.gov.br**
 
 
-
+>Não existe nada fora de você que permita que você se torne melhor, mais forte, mais rico, mais rápido ou mais inteligente. Tudo vem de dentro. Tudo existe. Não procure nada fora de si mesmo.
 
 ![](https://media1.tenor.com/m/F34qw5kiPI0AAAAd/musashi.gif)
-
->Não existe nada fora de você que permita que você se torne melhor, mais forte, mais rico, mais rápido ou mais inteligente. Tudo vem de dentro. Tudo existe. Não procure nada fora de si mesmo.
