@@ -1,1 +1,1 @@
-# Saudação **usuário** ☠️
+# Saudação **usuário** 🤙
