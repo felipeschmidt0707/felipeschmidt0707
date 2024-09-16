@@ -1,5 +1,6 @@
-# Saudação **usuário(a)** 🤙
+# Saudação **usuário(a)** 
+ Aqui você entra feliz e sai pensando na vida.
 
-![](https://media1.tenor.com/m/Tjq6A2eFOnMAAAAC/gojo-satoru-gojo.gif)
+![](https://media1.tenor.com/m/00DZ_hEb238AAAAd/musashi.gif)
 
->Você está apenas tentando se convencer de que está no caminho certo.
+>Você deve entender que há mais de um caminho para o topo da montanha.
