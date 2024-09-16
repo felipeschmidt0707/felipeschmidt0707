@@ -1,6 +1,6 @@
 # Saudação **usuário(a)** 
  -Prazer me chamo Felipe Schmidt atualemnte estou no 1° Ano do Ensino Médio, quero me especializar no áreas de exatas.
-   -Se quiser entrar em contato aqui em baixo estará um e-mail para comunicação.
+   >Para contato aqui em baixo estará um e-mail para comunicação.
  'felipe.andre.schmidt@escola.pr.gov.br'
 
 
